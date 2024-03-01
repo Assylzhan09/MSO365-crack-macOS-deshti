@@ -9,6 +9,8 @@ Bank card for support:
 
 ASSYLZHAN SATMAGAMBETOV
 
+GitHub limit is 100 mb file. Download it from here: https://drive.google.com/drive/folders/1RKzSNOdNY5h9PMY8zOjdWj2L6p7TUPeu?usp=share_link
+
 <kk>
   
 Microsoft Office 365 тегін нұсқада MacOS орнату нұсқау:
